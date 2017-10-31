@@ -27,3 +27,7 @@ After the Hackathon :
 
 #Update by Lucky the Boss xD
 
+----Doing something for a noble cause----
+We made this app to contribute our part in making this world a better place.( :) )
+#update done by Phoenikx
+
